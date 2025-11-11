@@ -1,2 +1,2 @@
 # Amazingreflect.com
-&lt;my media share>  videos, educational videos photos music and pdf notes downloads
+&lt;  Videos, Educational videos, images, music and pdf notes downloads
